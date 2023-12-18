@@ -10,9 +10,7 @@ The benefits when using BIM 5D are the consistency and quality of the data, the 
 We can already work with data without having to choose between products, but using only data-driven Pipeline and Workflow tools.
 
 🚀Join the world of automation:  
-Partner Program: [https://lnkd.in/e2T4zfCB](https://lnkd.in/e2T4zfCB)  
 LinkedIn: [https://lnkd.in/ed3JiBqm](https://lnkd.in/ed3JiBqm)  
-LinkedIn group: [https://lnkd.in/gHgZCD8r](https://lnkd.in/gHgZCD8r)  
 Telegram: [https://t.me/opensourcebim](https://t.me/opensourcebim)  
-Youtube: [https://lnkd.in/egCRXhc5](https://lnkd.in/egCRXhc5)
+Youtube: [https://lnkd.in/egCRXhc5]([https://lnkd.in/egCRXhc5](https://www.youtube.com/@datadrivenconstruction)https://www.youtube.com/@datadrivenconstruction)
 
